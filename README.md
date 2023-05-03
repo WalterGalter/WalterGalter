@@ -1,16 +1,17 @@
-### Hi there 👋
+### Hi
+![](https://media.tenor.com/bxETY3uE8qAAAAAC/floppa.gif)
 
-<!--
-**WalterGalter/WalterGalter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**I'm Galter/Walter i like ___caracals___ and ___cats___** 😸
 
-Here are some ideas to get you started:
+![](https://media.tenor.com/N5rubedIYxwAAAAM/floppa.gif)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Country:***Brazil🇧🇷***
+
+Pronouns:***Who/Where❓***
+
+Gender:***None🕳️***
+
+
+
+
+![](https://64.media.tumblr.com/82f73d232504adb7e8d441b1737695e8/926f15febbdd3ff8-3b/s250x400/92b41c42a21841fecd7e7c29d76e34becec3da92.gif)
